@@ -1,4 +1,4 @@
-👋 Hey there, I’m (@sunanhg)! <br/><br/>
+👋 Hey there, I’m (@sunanh)! <br/><br/>
 
 🚀 **Tech explorer | Problem solver | Code enthusiast** <br/><br/>
 
